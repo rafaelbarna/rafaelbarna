@@ -1,4 +1,3 @@
-Bem vind a minha bagunça
 
 ##
 
